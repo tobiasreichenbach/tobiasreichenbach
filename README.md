@@ -1,4 +1,4 @@
-### Hi there, my name is Tobias 👋
+### Hey 👋
 
 
 <!--
